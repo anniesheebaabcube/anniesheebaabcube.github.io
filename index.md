@@ -103,6 +103,6 @@ The teachers here never shout, never lose their tempers, never smack, shake or p
 <br/>
 <img src="https://raw.githubusercontent.com/anniesheebaabcube/abcube/master/assets/images/img17.jpg">
 
-<div class="navbar navbar-fixed-bottom"style="border-top: #aaa solid 1px;text-align: center;">
+<div class="navbar navbar-fixed-bottom" style="border-top: #aaa solid 1px; text-align: center;">
   &copy; 2018 Annie Sheeba
 </div>

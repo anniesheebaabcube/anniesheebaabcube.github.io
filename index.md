@@ -84,13 +84,13 @@ At A B CUBE , the Montessori classroom is a home away from home a happy place fu
 In A B CUBE the classroom encourages exploration, communication and the development of relationships on all levels. Everything reflects a dedication to quality, beauty and to the children's abilities to do things for themselves. 'Montessori saw that careful preparation of the environment is an essential ingredient for the successful development of children'. Here at A B Cube the classroom  are a friendly place where children feel at home, where they know where everything is and where they don't always have to rely on adults to help them.<br/>
 <img src="https://raw.githubusercontent.com/anniesheebaabcube/abcube/master/assets/images/img12.jpg">
 <br/>
-### Montessori classroom here tries to ensure that the materials provided met the interests of the children.
+### Montessori classroom ensures that the materials provided meet the interests of children.
 <br/>
 <img src="https://raw.githubusercontent.com/anniesheebaabcube/abcube/master/assets/images/img13.jpg">
 <br/>
 ## AB CUBE - A LOVING COMMUNITY
 
-A B CUBS 's Montessori environment is one where adults and children care for one other and aren't afraid to show it. It is somewhere where you can learn as much as possible about all the things that interest you without being scared about the things that don't. It is where you can be yourself and can learn to really love learning.
+A B CUBES's Montessori environment makes adults and children care for one another and aren't afraid to display it. It is a place where you can learn as much as possible about all the things that interests you without being worried about the things that don't. A place to be yourself and learn to really love learning.
 
 <br/>
 <img src="https://raw.githubusercontent.com/anniesheebaabcube/abcube/master/assets/images/img6.jpg">

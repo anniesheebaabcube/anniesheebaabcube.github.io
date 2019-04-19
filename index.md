@@ -8,6 +8,7 @@ Thulasi Garden, No.9, Vellalar St, Mogappair West, Mogappair, Chennai, Tamil Nad
 
 [Contact us](tel: +91 86800 01273)
 +91 86800 01273
+contact@abcube.school
 
 ## ABOUT  MONTESSORI
 Montessori stated that children have a natural tendency to learning; that stages of learning exist for which there should be corresponding educational environments and appropriately trained teachers to “prepare the environment.” She realised that the child relies completely on the environment for the sensorial impressions through which he gains a sense of the world in which he lives. She therefore paid a great deal of attention to the way in which Montessori schoolrooms were laid out. The child learns independently using the components of the environment: the teacher guides and observes the child who chooses his activities. The teacher is the link between the child and the environment. The learning environment cultivates individualization, freedom of choice, concentration, independence, problem solving abilities, social interaction, interdisciplinary breadth and competency in basic skills.

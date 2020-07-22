@@ -13,9 +13,9 @@ contact@abcube.school
 ## ABOUT  MONTESSORI
 Montessori stated that children have a natural tendency to learning; that stages of learning exist for which there should be corresponding educational environments and appropriately trained teachers to “prepare the environment.” She realised that the child relies completely on the environment for the sensorial impressions through which he gains a sense of the world in which he lives. She therefore paid a great deal of attention to the way in which Montessori schoolrooms were laid out. The child learns independently using the components of the environment: the teacher guides and observes the child who chooses his activities. The teacher is the link between the child and the environment. The learning environment cultivates individualization, freedom of choice, concentration, independence, problem solving abilities, social interaction, interdisciplinary breadth and competency in basic skills.
 <br/>
-Everything in a Montessori classroom is made to be easily accessible to the children. Montessori was the first educator to produce child-sized tables and chairs and to think about the fact that children need to have cupboards and shelves at their own height. She wanted the children to feel that the schoolroom belonged to them rather than the teachers.   
+Everything in a Montessori classroom is made to be easily accessible to the children. Montessori was the first educator to produce child-sized tables and chairs and to think about the fact that children need to have cupboards and shelves at their own height. She wanted the children to feel that the schoolroom belonged to them rather than the teachers.
 
-<img src="http://my.abcube.school/assets/images/img14.jpg">   
+<img src="http://abcube.school/assets/images/img14.jpg">
 
 ## Practical life activities
 Practical life activities are therefore an important part of the Montessori environment. The young child is attracted to activities that he sees going on around him and that give him independence and control of his own life. She therefore introduced into her classrooms materials and exercises that allow children the maximum possible opportunity to learn how to both look after themselves and their environment. In the practical life area you will see things such as special frames to help children learn to do up and undo clothes, lots of spooning and pouring exercises, stirring, whisking and grating trays, cutting and threading activities and many other activities that children see going on around them at home. Practical life also includes helping children do other important tasks such as opening and closing doors, carrying trays and chairs, washing and drying hands, caring for books and blowing noses!
@@ -23,7 +23,7 @@ Practical life activities are therefore an important part of the Montessori envi
 ## The sensorial materials
 The need for order, exactness, self-correction and quiet reflection all are qualities that Montessori saw are needed in order for children to develop as they should. When she saw that children are particularly drawn to certain activities she then concentrated on developing materials that would extend that interest. She carefully took each of the senses and thought how best she could help the children to clarify and expand their existing experiences. By isolating specific qualities in the materials and by grading each set in ever-refined series, she was able to give the children the ability to increasingly refine each of their senses. Many of the exercises in this area are also indirect preparations for later mathematics and language work as they enable the child to order, classify, seriate and describe sensory impressions in relation to length, width, temperature, mass and colour.
 
-<img src="http://my.abcube.school/assets/images/img15.jpg">
+<img src="http://abcube.school/assets/images/img15.jpg">
 
 ## Mathematics
 Montessori believed that children have mathematical minds and she revolutionised the way in which mathematics is taught. She developed a wonderful set of materials, many of which have now been copied by educators throughout the world. The mathematical concept is presented firstly in a very concrete form followed by the abstract written version. The materials for mathematics introduce the concept of quantity and the symbols 1 through to 10. Then, using a variety of beads and symbol cards, the child becomes familiar with the numbers as a decimal system by means including concrete experiences with the operation of addition, subtraction, multiplication and division. These operations not only teach the child to calculate, but they provide a deep understanding of how numbers function.
@@ -37,25 +37,25 @@ Montessori saw that young children were full of curiosity and loved exploring ne
 ## Art and creativity
 Montessori felt that it is very important for children to be allowed to express themselves freely. She was aware, however, that they are very often frustrated by the fine motor skills they need for such things as cutting and gluing. She therefore developed many indirect activities that help children develop the necessary abilities. The Montessori environment is full of opportunities to experiment with different and exciting materials. Whether involved in painting, singing, playing instruments or dancing, children are allowed to be individuals, free to express their feelings and emotions and free to enjoy the rich worlds of movement, sound, colour and sensation.
 <br/>
-<img src="http://my.abcube.school/assets/images/img16.jpg">
+<img src="http://abcube.school/assets/images/img16.jpg">
 <br/>
 
-<img src="http://my.abcube.school/assets/images/img8.jpg">
+<img src="http://abcube.school/assets/images/img8.jpg">
 <br/>
 ### Theater Skills - Increasing self esteem
 <br/>
-<img src="http://my.abcube.school/assets/images/img9.jpg">
+<img src="http://abcube.school/assets/images/img9.jpg">
 <br/>
 ### Cartoon Drawing - basic
 <br/>
-<img src="http://my.abcube.school/assets/images/img4.jpg">
+<img src="http://abcube.school/assets/images/img4.jpg">
 <br/>
 ### Embroidery - MAT stitching
 <br/>
-<img src="http://my.abcube.school/assets/images/img5.jpg">
+<img src="http://abcube.school/assets/images/img5.jpg">
 
 <br/>
-<img src="http://my.abcube.school/assets/images/img2.jpg">
+<img src="http://abcube.school/assets/images/img2.jpg">
 
 ## Imagination
 Montessori schools tend to offer the children activities that are based upon real activities in the real world. Montessori felt that very young children need experiences rooted in the real world. In a Montessori school, therefore, you are much more likely to see children doing real washing, cleaning and cooking than pretend.
@@ -70,31 +70,31 @@ Children aren't born with an innate knowledge of why we shake hands, or kiss, or
 
 <br/>
 
-<img src="http://my.abcube.school/assets/images/img10.jpg">
+<img src="http://abcube.school/assets/images/img10.jpg">
 
 <br/>
 ### Group Learning
-<img src="http://my.abcube.school/assets/images/img7.jpg">
+<img src="http://abcube.school/assets/images/img7.jpg">
 
 ## The Environment at A B CUBE
 At A B CUBE , the Montessori classroom is a home away from home a happy place full of friends where the children can be themselves.  It is a place full of interesting things to do, but also a place where the children can take time out and just be quiet if they want to. It is somewhere they can grow up knowing that they belong and that they are special.
 <br/>
-<img src="http://my.abcube.school/assets/images/img11.jpg">
+<img src="http://abcube.school/assets/images/img11.jpg">
 
 ## THINK - CHILD SIZE
 In A B CUBE the classroom encourages exploration, communication and the development of relationships on all levels. Everything reflects a dedication to quality, beauty and to the children's abilities to do things for themselves. 'Montessori saw that careful preparation of the environment is an essential ingredient for the successful development of children'. Here at A B Cube the classroom  are a friendly place where children feel at home, where they know where everything is and where they don't always have to rely on adults to help them.<br/>
-<img src="http://my.abcube.school/assets/images/img12.jpg">
+<img src="http://abcube.school/assets/images/img12.jpg">
 <br/>
 ### Montessori classroom ensures that the materials provided meet the interests of children.
 <br/>
-<img src="http://my.abcube.school/assets/images/img13.jpg">
+<img src="http://abcube.school/assets/images/img13.jpg">
 <br/>
 ## AB CUBE - A LOVING COMMUNITY
 
 A B CUBES's Montessori environment makes adults and children care for one another and aren't afraid to display it. It is a place where you can learn as much as possible about all the things that interests you without being worried about the things that don't. A place to be yourself and learn to really love learning.
 
 <br/>
-<img src="http://my.abcube.school/assets/images/img6.jpg">
+<img src="http://abcube.school/assets/images/img6.jpg">
 
 ## MENTORS at A B CUBE
 Montessori teachers are frequently referred to as directresses because it is a better summing up of what they do. They direct the child towards learning opportunities rather than teach. The staff  at A B CUBE are calm and unhurried and move around the room discreetly and quietly. They are responsive to the needs of individual children who  have to wait until they become bored or upset before they get attention but vigilance is maintained in a low-key way so the children do not feel as if they are being policed.
@@ -102,8 +102,8 @@ Montessori teachers are frequently referred to as directresses because it is a b
 The teachers here never shout, never lose their tempers, never smack, shake or push a child or even speak crossly. They are pleasant and polite, firm without anger and be able to deal with a misdemeanor with sympathy and assistance rather than with punishment. All children are shown respect, never humiliated or laughed at, and their remarks are listened to seriously and answered thoughtfully and courteously.
 
 <br/>
-<img src="http://my.abcube.school/assets/images/img17.jpg">
+<img src="http://abcube.school/assets/images/img17.jpg">
 
 <div class="navbar navbar-fixed-bottom" style="border-top: #aaa solid 1px; text-align: center;">
-  &copy; 2018 AB Cube Preschool
+&copy; 2018 AB Cube Preschool
 </div>

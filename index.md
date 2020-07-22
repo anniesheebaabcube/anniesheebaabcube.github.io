@@ -105,5 +105,5 @@ The teachers here never shout, never lose their tempers, never smack, shake or p
 <img src="http://abcube.school/assets/images/img17.jpg">
 
 <div class="navbar navbar-fixed-bottom" style="border-top: #aaa solid 1px; text-align: center;">
-  &copy; <div id="bottom-year">2020</div> AB Cube Preschool
+  &copy; <span id="bottom-year">2020</span> AB Cube Preschool
 </div>

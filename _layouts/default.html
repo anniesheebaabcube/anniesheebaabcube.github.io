@@ -64,5 +64,8 @@ ga('create', '{{ site.google_analytics }}', 'auto');
 ga('send', 'pageview');
 </script>
 {% endif %}
+window.onload = function() {
+  document.getElementById('bottom-year').innerHTML = new Date().getFullYear();
+};
 </body>
 </html>
